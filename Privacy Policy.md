@@ -1,4 +1,4 @@
-#Privacy Policy
+Privacy Policy
 
 our safety is important to us. For this reason, your personal data that you will share with us is protected with sensitivity.
 
